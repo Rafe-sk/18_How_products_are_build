@@ -1,3 +1,6 @@
+Link to the video:
+https://drive.google.com/drive/folders/1aUTg_h1F423r2cmpt9vFLq1oNEfzkLd_?usp=sharing
+
 Case Study of Zomato
 Questions Covered:
 1-What Is Zomato
