@@ -1,5 +1,5 @@
 Link to the video:
-https://drive.google.com/drive/folders/1aUTg_h1F423r2cmpt9vFLq1oNEfzkLd_?usp=sharing
+https://drive.google.com/file/d/1RzfXI5FB15Wh2yaPLfGTwF7fsz81WkLk/view?usp=sharing
 
 Case Study of Zomato
 Questions Covered:
